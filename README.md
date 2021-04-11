@@ -1,5 +1,3 @@
-# Precautions For Cyclone
-
 
 
 BEFORE THE CYCLONE SEASON
